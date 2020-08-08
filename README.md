@@ -1,2 +1,2 @@
 ### Hi there 👋
-I code 'fun' stuff, hit me up for good ideas.
+I ran http://Pomf.se & run http://Uguu.se. Follow me into the cesspool of coding. Hit me up for fun project ideas.
