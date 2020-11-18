@@ -1,5 +1,5 @@
 ### Hi there 👋
-I ran http://Pomf.se & run http://Uguu.se. Follow me into the cesspool of code. Hit me up for fun project ideas or contribute to my current ones.
+I ran http://Pomf.se & run http://Uguu.se. Hit me up for fun project ideas or contribute to my current ones.
 
 ![Ah](https://raw.githubusercontent.com/nokonoko/nokonoko/master/roll.jpeg)
 
