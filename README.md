@@ -1,6 +1,8 @@
 ### Hi there 👋
 I ran [Pomf.se](http://pomf.se) & run [Uguu.se](https://uguu.se). Hit me up for fun project ideas or contribute to my current ones.
 
+I can also be found on [Git.Teknik.io](https://git.teknik.io/nekunekus).
+
 ![Ah](https://raw.githubusercontent.com/nokonoko/nokonoko/master/roll.jpeg)
 
 D̳̉̑͐̽̈u̢͍̝̅̃ͮ͒̽ͮ̇ ̖͉̦̝͓̓ͫ̓͂̿̏͆͘g̡̞̻̫̎ͅä͉͔̯̣̟́͘m͙͕͕ľ̢̬͍̘ͮͪa͎͇̲ͣ ̦̜̗͖͌ͨ̓ͪͅd͍͚̯̫̾͊ṵ̢͈͕͉ͩ̉͋̚ ̶̫̹̥ͩ͛̈̂̆ͅf̦̫͓̰̬̮r͎̪͙̺̤ͨ͛͊͒͟i̻̖̳̤͔ͅa̙̬̬͔͙̣̰͠ ̟̃ͥ͗̎̀ͧ͒d̟͈͚͓͍͐̅͞u̟̩̔͆͢ ͇̟̙̎̓̂͘f̡̗͌͆ͭj͇̼̺͛ͪ͊ä̩̦̬̻̮̿̈́ͤ͡l҉̼l̗͙̞̃ḩ̉ͪ́̒͂̄ͩö̪͙̬̺̬͜g̨̺̫ͭ́a̵̒͌ ̰͈̈́ͬ̆͒̆̎n͕̺̑͛̒͟o̧̭̲̓r̬̗͛ͣ̃̍̄ͫ͜ͅd̽̄͆͆,͔̫̺͕̳̓̔
